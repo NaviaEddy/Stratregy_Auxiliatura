@@ -1,0 +1,1 @@
+# Stratregy_Auxiliatura
